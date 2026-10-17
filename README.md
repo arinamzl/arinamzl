@@ -11,7 +11,7 @@
 ### 🚀 About Me
 
 computer engineering student.  
-I'm still on my learning journey.
+still on my learning journey!
 
 🔭 &nbsp;I'm currently working on **small projects to improve my skills.**  
 😄 &nbsp;Pronouns: **she/her**  
